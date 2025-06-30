@@ -1,7 +1,5 @@
 # Rahul Joshi
-
-📞 +91 9535490863  
-✉️ rahuljoshey187@gmail.com  
+ 
 🔗 [LinkedIn](https://www.linkedin.com/in/rahul-joshey/)
 
 ---
