@@ -1,6 +1,7 @@
 # Rahul Joshi
  
 🔗 [LinkedIn](https://www.linkedin.com/in/rahul-joshey/)
+🔗 [Resume](https://github.com/joshey-bit/joshey-bit/blob/main/Rahul_Resume_Aircraft_Structure_Analysis.pdf)
 
 ---
 
